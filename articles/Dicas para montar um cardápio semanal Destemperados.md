@@ -1,4 +1,3 @@
-# Dicas para montar um cardápio semanal | Destemperados
 # [Dicas para montar um cardápio semanal](https://gauchazh.clicrbs.com.br/destemperados/dicas-de-cozinha/noticia/2020/07/dicas-para-montar-um-cardapio-semanal-ckd4u9lj60005013g4dykmovr.html)
 
 Fazer comida todo o dia é uma tarefa nenhum pouco fácil, ainda mais para quem trabalha o dia todo, mesmo que esteja de home office. Comer fora todo o dia ou pedir delivery acaba saindo bem caro e, nem sempre faz bem à nossa saúde. Mesmo que a gente conheça restaurante e confiamos totalmente, é difícil seguir a dieta quando a gente vê aquela batatinha frita no buffet ou aquela lasanha maravilhosa. 
