@@ -1,4 +1,3 @@
-# A Música Aceitável a Deus - Dr. W. Robert Godfrey
 # A Música Aceitável a Deus  
 > Um argumento para maior uso dos Salmos por **Dr. W. Robert Godfrey**
 
