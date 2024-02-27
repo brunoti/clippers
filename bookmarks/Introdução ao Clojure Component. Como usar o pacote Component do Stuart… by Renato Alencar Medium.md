@@ -1,23 +1,5 @@
-# Introdução ao Clojure Component. Como usar o pacote Component do Stuart… | by Renato Alencar | Medium
 Como usar o pacote Component do Stuart Sierra?
 ----------------------------------------------
-
-[
-
-![](https://miro.medium.com/v2/resize:fill:88:88/1*g329iTCYf84LaqjjvnUSmg.jpeg)
-
-
-
-
-
-
-
-
-
-
-](https://renatoalencar.medium.com/?source=post_page-----6ffbf388f6ae--------------------------------)
-
-![](https://miro.medium.com/v2/resize:fit:1400/1*C2crElnGWQ3IeSS5yZ6czg.jpeg)
 
 Se você chegou até aqui já deve saber que Clojure é uma linguagem de programação funcional baseada em Lisp que tem ganhado popularidade no Brasil nos últimos anos, principalmente por causa da Nubank. Na minha experiencia pessoal, Clojure tem sido uma linguagem com uma entrada um pouco difícil, algumas coisas são complicadas de inicio, mas você ganha tração bem fácil à medida que você vai tentando se aprofundar.
 
