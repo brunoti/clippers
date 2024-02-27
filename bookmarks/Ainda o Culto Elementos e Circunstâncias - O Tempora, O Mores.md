@@ -1,0 +1,36 @@
+# Ainda o Culto: Elementos e Circunstâncias - O Tempora, O Mores
+Não pretendo me estender mais sobre este assunto. Já devo ter deixado claro o meu pensamento sobre as danças litúrgicas. Publiquei quase todos os comentários que me mandaram sobre o assunto, à exceção daqueles que visivelmente queriam apenas bater boca. Tentei responder alguns comentários e interagir com nossos leitores. Prometo que vou parar por aqui.
+
+Lembro um outro post meu que trata do assunto do culto e do louvor, que pode ser lido [aqui](http://tempora-mores.blogspot.com/2006/07/conselhos-um-jovem-pastor-sobre-o.html), onde coloco algumas considerações sobre grupos de louvor e instrumentos musicais.
+
+Este post é uma tentativa de atender ao pedido de um querido amigo no post anterior: qual a diferença entre danças e instrumentos de música? Entre danças e corais? Se pode um, por que não pode o outro? Por que proibir danças e permitir instrumentos e corais?
+
+Vou dar meu entendimento sobre esse assunto. Para mim, as danças litúrgicas são vistas como elemento de culto, enquanto que corais, instrumentos de música, são meras circunstâncias deste culto. Deixem-me elaborar um pouco mais neste assunto difícil.
+
+1) **Os elementos de culto** \-\- são aquelas atividades determinadas pelas Escrituras nas quais o povo de Deus se engaja durante o culto, com o propósito de adorar a Deus, render-lhe graças e louvor, edificar-se internamente e anunciar o Evangelho ao mundo.  
+
+  
+
+Nem todas as atividades das quais os seres humanos são capazes são próprias, adequadas ou eficazes para estes fins elevados, embora não sejam intrinsecamente erradas para outros propósitos. Por este motivo, o próprio Deus nos revelou em Sua Palavra quais atividades são apropriadas para o culto que Ele nos determinou. Historicamente, as igrejas cristãs têm considerado como elementos de culto (embora nem sempre tenha havido unanimidade), a leitura das Escrituras com o temor divino, a sã pregação da palavra e a consciente atenção a ela em obediência a Deus, com inteligência, fé e reverência; o cantar salmos, hinos e cânticos espirituais com graças no coração, a administração e digna recepção dos sacramentos instituídos por Cristo, votos, jejuns solenes, ações de graças em ocasiões especiais, e ofertas.
+
+Devemos cuidar para que o culto oferecido a Deus por nossas igrejas contenham somente aqueles elementos prescritos na Bíblia, quer de maneira clara, direta, ou mediante inferência legítima. Todavia, considerando que não temos uma liturgia fixa prescrita na Bíblia, e que nosso conhecimento do culto cristão apostólico é fragmentado, a uniformidade nos cultos das igrejas cristãs é alvo impossível de atingir. Por outro lado, as igrejas cristãs devem estar empenhadas em sempre reformar seus cultos, em busca da simplicidade bíblica, em vez de se empenhar para adicionar elementos e formas de culto estranhos à Palavra de Deus em nome da modernidade, contextualização e agradar os homens.
+
+2) **As circunstâncias de culto** \-\- se fizermos esta distinção entre elementos de culto e as circunstâncias que atendem estes elementos talvez possamos eliminar boa parte das dificuldades que cercam algumas das questões relacionadas com o culto público.
+
+Enquanto que a Igreja deve se restringir zelosamente aos elementos prescritos na Palavra de Deus, existem determinadas circunstâncias referentes ao bom andamento do culto público que foram deixados a critério da Igreja decidir, usando bom senso, sabedoria e os princípios gerais da Palavra.
+
+Tais circunstâncias estão relacionadas com o ambiente de culto, e envolvem decisões quanto à amplificação do som, uso de mídia, arrumação do salão, mobiliário adequado e sua disposição no local, a iluminação e decoração do ambiente, entre outros. Outras, relacionadas com o culto propriamente dito, tais como o horário do culto, a sua ordem (seqüência), o acompanhamento do louvor com instrumentos musicais, o cântico através de coros e grupos de louvor.
+
+O que diferencia estas circunstâncias dos elementos do culto é que os elementos são parte essencial do culto a Deus e foram por Ele prescritos em Sua Palavra, sendo meios pelos quais recebemos a Sua graça e lhe prestamos adoração e louvor. As circunstâncias, por sua vez, dizem respeito aos passos envolvidos na implementação e aplicação dos elementos – são dependentes destes. Destarte, as circunstâncias não se referem as parte do culto e nem são meios de graça, podendo ou não estar presentes. A presença das circunstâncias não torna um culto mais ou menos espiritual ou aceitável a Deus.
+
+Por causa de sua natureza circunstancial e secundária, estas providências que atendem o culto não devem tornar-se um fim em si mesmas, assumir caráter religioso, tomar o lugar dos elementos ou impedir que os mesmos sejam utilizados de forma própria, eficaz e correta pelo povo de Deus. Seu objetivo é exatamente permitir que o culto a Deus aconteça de maneira adequada, apropriada, facilitando a sua realização e maximizando o potencial dos elementos.
+
+No meu entendimento, danças litúrgicas são vistas como elemento de culto pelas igrejas que as adotam. A começar do nome, “dança litúrgica”, isto é, uma dança que faz parte da liturgia do culto. Criou-se um novo dom espiritual para este “ministério”, que é o dom da dança e até mesmo a associaram com a profecia, surgindo a dança profética. As danças litúrgicas se tornam uma parte do culto, como a pregação, a Ceia, etc.
+
+Já instrumentos de músicas, como piano, guitarra, bateria, são meras circunstâncias, que podem ou não estar presentes, e que não agregam a si qualquer conteúdo espiritual ou teológico, ao contrário das danças, que são vistas como manifestações espirituais.
+
+Os conjuntos corais também não são elementos de culto, são uma circunstância daquele elemento que é o louvor. Trata-se de transmitir pela música, de maneira inteligível e numa linguagem que todos entendem, a mensagem da Palavra de Deus. As danças litúrgicas, ao contrário, não esclarecem a mensagem, antes a confundem, pois gestos, movimentos, por mais graciosos e harmônicos que sejam, não têm como transmitir de forma inteligente e compreensível a Palavra de Deus, e assim ferem aquele princípio que Paulo recomenda em 1Coríntios 14, que as manifestações no culto devem ser entendidas por todos. É por isto que ele não permite o falar em línguas no culto, a não ser que sejam interpretadas, para que os demais possam receber edificação.
+
+Ao mesmo tempo, preciso dizer que corais e grupos de louvor só deveriam ser permitidos se tiverem este caráter de circunstância: que auxiliem o louvor, tornando-o melhor, mais inteligível, e sem se tornarem o centro das atenções. Quando corais e grupos de louvor viram apresentação, não deveriam ser admitidos no culto.
+
+Termino reafirmando, mais uma, que este assunto não está na essência da fé evangélica, embora por isto não deva ser menosprezado. Continuo desejando comunhão com todo vero irmão em Cristo, ainda que ele seja parte do grupo de dança litúrgica de sua igreja.
